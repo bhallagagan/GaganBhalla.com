@@ -1,4 +1,4 @@
-![Profile Dashboard](GaganBhalla.com/IT Manager CV Resume.jpg)
+IT Manager CV Resume.jpg
 # 👤 Gagandeep Singh Bhalla
 
 🎥 **Freelance Content Creator | Website Designer | Digital Media Enthusiast**  
