@@ -1,5 +1,5 @@
 # 👤 Gagandeep Singh Bhalla
-[Profile Dashboard] (/D:\me.jpg)
+! [Profile Dashboard] (/D:\me.jpg)
 🎥 **Freelance Content Creator | Website Designer | Digital Media Enthusiast**  
 📍 Delhi, India  
 📧 bhallagagan139@gmail.com  
