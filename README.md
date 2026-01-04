@@ -1,5 +1,6 @@
+![Profile Dashboard](GaganBhalla.com/IT Manager CV Resume.jpg)
 # 👤 Gagandeep Singh Bhalla
-! [IT Manager CV Resume.jpg] (/D:\me.jpg)
+
 🎥 **Freelance Content Creator | Website Designer | Digital Media Enthusiast**  
 📍 Delhi, India  
 📧 bhallagagan139@gmail.com  
